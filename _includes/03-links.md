@@ -1,1 +1,1 @@
-[GitHub Profile] (https://github.com/githubteacher)
+[GitHub Profile] (https://www.ttu.edu/)
