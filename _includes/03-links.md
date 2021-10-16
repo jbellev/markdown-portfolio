@@ -1,1 +1,1 @@
-[GitHub Profile] (https://www.ttu.edu/)
+[Profile] (https://www.ttu.edu/).
